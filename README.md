@@ -5,6 +5,8 @@ I just do stuff that i think is cool
 stuff i do:
 * html shit
 * doom modding
+* half life fanatic
+* c++ on cocaine
 * shit i think is cool and then never touch it again
 * terrorize random people
 
